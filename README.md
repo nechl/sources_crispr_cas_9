@@ -1,4 +1,4 @@
-# sources_crispr_cas_9
+# sources CRISPR-Cas9
 This is a repository to store and display all the sources we used for creating this handout.
 ## Sources Text
 [https://www.labiotech.eu/best-biotech/crispr-technology-cure-disease/](https://www.labiotech.eu/best-biotech/crispr-technology-cure-disease/)
