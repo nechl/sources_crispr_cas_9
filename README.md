@@ -20,7 +20,9 @@ These are all the sources we used for creating the handout.
 [https://www.youtube.com/watch?v=gUa2H8CcUjU](https://www.youtube.com/watch?v=gUa2H8CcUjU)
 ## Sources for pictures
 [https://4.bp.blogspot.com/-Z-lIlmqAXrU/WHMnNZzEWAI/AAAAAAABRiU/le6h1cBiD8Y-K8Zc7VxgQTLfsVkLjoevACLcB/s1600/crisprtranshuman.png](https://4.bp.blogspot.com/-Z-lIlmqAXrU/WHMnNZzEWAI/AAAAAAABRiU/le6h1cBiD8Y-K8Zc7VxgQTLfsVkLjoevACLcB/s1600/crisprtranshuman.png)
+
 [https://www.youtube.com/watch?v=gUa2H8CcUjU  - Screenshots](https://www.youtube.com/watch?v=gUa2H8CcUjU)
+
 https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.forbes.com%2Fsites%2Fjarretjackson%2F2020%2F08%2F12%2Fas-a-leader-are-you-asking-the-right-questions%2F&psig=AOvVaw0gH0aUpv8RjXbgol-lyhv1&ust=1622036400321000&source=images&cd=vfe&ved=0CAIQjRxqFwoTCMi_hs765PACFQAAAAAdAAAAABAD
 
 https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.aerzteblatt.de%2Fnachrichten%2F117288%2FGenschere-CRISPR-erkennt-SARS-CoV-2-in-5-Minuten&psig=AOvVaw0l1oYX11Au9TNWKglHIjcC&ust=1622036227448000&source=images&cd=vfe&ved=0CAIQjRxqFwoTCPDehaP85PACFQAAAAAdAAAAABAD
