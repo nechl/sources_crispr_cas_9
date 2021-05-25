@@ -23,6 +23,8 @@ These are all the sources we used for creating the handout.
 ## Sources for pictures
 [https://4.bp.blogspot.com/-Z-lIlmqAXrU/WHMnNZzEWAI/AAAAAAABRiU/le6h1cBiD8Y-K8Zc7VxgQTLfsVkLjoevACLcB/s1600/crisprtranshuman.png](https://4.bp.blogspot.com/-Z-lIlmqAXrU/WHMnNZzEWAI/AAAAAAABRiU/le6h1cBiD8Y-K8Zc7VxgQTLfsVkLjoevACLcB/s1600/crisprtranshuman.png)
 
+[https://jooinn.com/images/curious-cat-1.jpg](https://jooinn.com/images/curious-cat-1.jpg)
+
 [https://www.youtube.com/watch?v=gUa2H8CcUjU  - Screenshots](https://www.youtube.com/watch?v=gUa2H8CcUjU)
 
 https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.forbes.com%2Fsites%2Fjarretjackson%2F2020%2F08%2F12%2Fas-a-leader-are-you-asking-the-right-questions%2F&psig=AOvVaw0gH0aUpv8RjXbgol-lyhv1&ust=1622036400321000&source=images&cd=vfe&ved=0CAIQjRxqFwoTCMi_hs765PACFQAAAAAdAAAAABAD
