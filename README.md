@@ -21,3 +21,10 @@ These are all the sources we used for creating the handout.
 ## Sources for pictures
 [https://4.bp.blogspot.com/-Z-lIlmqAXrU/WHMnNZzEWAI/AAAAAAABRiU/le6h1cBiD8Y-K8Zc7VxgQTLfsVkLjoevACLcB/s1600/crisprtranshuman.png](https://4.bp.blogspot.com/-Z-lIlmqAXrU/WHMnNZzEWAI/AAAAAAABRiU/le6h1cBiD8Y-K8Zc7VxgQTLfsVkLjoevACLcB/s1600/crisprtranshuman.png)
 
+https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.forbes.com%2Fsites%2Fjarretjackson%2F2020%2F08%2F12%2Fas-a-leader-are-you-asking-the-right-questions%2F&psig=AOvVaw0gH0aUpv8RjXbgol-lyhv1&ust=1622036400321000&source=images&cd=vfe&ved=0CAIQjRxqFwoTCMi_hs765PACFQAAAAAdAAAAABAD
+
+https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.aerzteblatt.de%2Fnachrichten%2F117288%2FGenschere-CRISPR-erkennt-SARS-CoV-2-in-5-Minuten&psig=AOvVaw0l1oYX11Au9TNWKglHIjcC&ust=1622036227448000&source=images&cd=vfe&ved=0CAIQjRxqFwoTCPDehaP85PACFQAAAAAdAAAAABAD
+
+https://www.google.com/url?sa=i&url=https%3A%2F%2Fmedcitynews.com%2F2020%2F12%2Fwhat-if-we-captured-the-spirit-and-urgency-of-covid-19-research-to-cure-cancer%2F&psig=AOvVaw1auTcj1Ef0QDgAuyKiBv5F&ust=1622035984776000&source=images&cd=vfe&ved=0CAIQjRxqFwoTCNCq6K785PACFQAAAAAdAAAAABAD
+
+https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.welt.de%2Fwissenschaft%2Farticle150528268%2FEin-Designerbaby-nach-Bauplan-fuer-140-000-Dollar.html&psig=AOvVaw08RvU5Ps6HMCJd46LtakFz&ust=1622035908845000&source=images&cd=vfe&ved=0CAIQjRxqFwoTCIjQ-7T85PACFQAAAAAdAAAAABAD
